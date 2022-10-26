@@ -1,0 +1,1 @@
+# waakanaa kala dag halkaan
